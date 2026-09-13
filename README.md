@@ -4,7 +4,7 @@
 
 
 <details>
-  <summary>About me</summary>
+  <summary>📝 About me</summary>
   im an artist, animator, and indie show creator !! im in a LOT of fandoms but my main ones are Sonic, Dodge&Laffy, and Needy Streamer Overload. i really like cute things and im very into cutecore/jojifuku fashion >_<
   
 </details>
