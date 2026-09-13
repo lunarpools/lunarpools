@@ -45,8 +45,8 @@
 
   this time it’ll be great for sure though. as of writing this only the introduction and first episode is out but i plan to have 20 episodes :D
 
-<img width="1615" height="1620" alt="IMG_6279" src="https://github.com/user-attachments/assets/c5a97fda-9640-4af4-9648-ee413599f95a" />
-<img width="1606" height="1620" alt="IMG_6278" src="https://github.com/user-attachments/assets/e907efee-582b-4329-9752-ae945aecf672" />
+<img width="1015" height="1020" alt="IMG_6279" src="https://github.com/user-attachments/assets/c5a97fda-9640-4af4-9648-ee413599f95a" />
+<img width="1006" height="1020" alt="IMG_6278" src="https://github.com/user-attachments/assets/e907efee-582b-4329-9752-ae945aecf672" />
 
   
 </details>
