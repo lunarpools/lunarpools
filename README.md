@@ -1,4 +1,5 @@
-## Hi there 👋
+## HELLOOOO
+<img width="736" height="581" alt="IMG_6256" src="https://github.com/user-attachments/assets/ce78e17b-43fc-43e1-870b-7bcd70e04184" />
 
 <!--
 **lunarpools/lunarpools** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
