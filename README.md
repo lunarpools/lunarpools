@@ -36,7 +36,7 @@
 <img width="512" height="520" alt="Untitled275_20260913162946" src="https://github.com/user-attachments/assets/a49dca60-285f-4d05-8281-7d94ec6fcdc3" />
 
 
-
+also habit youre amazing
 
 
 <img width="112" height="112" alt="IMG_5352" src="https://github.com/user-attachments/assets/23b54ceb-8828-4f33-b36f-0e2f24751be8" /> <— he IS me
