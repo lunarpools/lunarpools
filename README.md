@@ -1,5 +1,5 @@
 ## HELLOOOO ❤️ 
-<img width="1212" height="1220" alt="Untitled275_20260913162946" src="https://github.com/user-attachments/assets/a49dca60-285f-4d05-8281-7d94ec6fcdc3" />
+<img width="312" height="320" alt="Untitled275_20260913162946" src="https://github.com/user-attachments/assets/a49dca60-285f-4d05-8281-7d94ec6fcdc3" />
 
 
 
