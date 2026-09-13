@@ -1,5 +1,6 @@
 ## HELLOOOO ❤️ 
-<img width="536" height="381" alt="IMG_6256" src="https://github.com/user-attachments/assets/ce78e17b-43fc-43e1-870b-7bcd70e04184" />
+<img width="1612" height="1620" alt="Untitled275_20260913162754" src="https://github.com/user-attachments/assets/b9fba57f-e1a8-43be-9e81-75081c59cd26" />
+
 
 ‼️ I HAVE ATTACHMENT ISSUES so please interact with care ‼️ (i mean this)
 
