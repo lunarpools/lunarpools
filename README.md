@@ -50,6 +50,7 @@
   
 </details>
 
+<img width="1600" height="320" alt="IMG_6280" src="https://github.com/user-attachments/assets/5b0800e2-01d5-4de0-9545-e8365adabe64" />
 
 <img width="512" height="520" alt="Untitled275_20260913162946" src="https://github.com/user-attachments/assets/a49dca60-285f-4d05-8281-7d94ec6fcdc3" />
 
