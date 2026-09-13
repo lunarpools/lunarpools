@@ -3,6 +3,12 @@
 — HI IM LUNARPOOLS
 
 an artist, animator, and indie show creator
+<details>
+  <summary>Click here to expand</summary>
+  
+  This is the hidden text that appears when the dropdown is clicked.
+</details>
+
 
 <img width="512" height="520" alt="Untitled275_20260913162946" src="https://github.com/user-attachments/assets/a49dca60-285f-4d05-8281-7d94ec6fcdc3" />
 
