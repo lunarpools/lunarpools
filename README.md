@@ -44,8 +44,7 @@
   it’s actually a remake of my first attempt which SUCKED because there was no planning in it 😔 
 
   this time it’ll be great for sure though. as of writing this only the introduction and first episode is out but i plan to have 20 episodes :D
-<img width="2000" height="2000" alt="Untitled255_20260824155512" src="https://github.com/user-attachments/assets/ec98d2f3-90f4-4043-8d6e-14f8709f90ee" />
-<img width="2000" height="2000" alt="Untitled254_20260823114411" src="https://github.com/user-attachments/assets/5518d963-0a81-47ce-acfd-28aa6f5e4ba3" />
+
 <img width="1615" height="1620" alt="IMG_6279" src="https://github.com/user-attachments/assets/c5a97fda-9640-4af4-9648-ee413599f95a" />
 <img width="1606" height="1620" alt="IMG_6278" src="https://github.com/user-attachments/assets/e907efee-582b-4329-9752-ae945aecf672" />
 
