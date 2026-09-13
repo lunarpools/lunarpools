@@ -7,10 +7,12 @@
   <summary>📝 About me</summary>
   im 15 and im a girl (im genderfluid)
   
+  
   im an artist, animator, and indie show creator !! im in a LOT of fandoms but my main ones are Sonic, Dodge&Laffy, and Needy Streamer Overload. i really like cute things and im very into cutecore/jojifuku fashion >_<
 
 
   my favorite characters are: Tails (sonic), Laffy (dodge&laffy), Kyoko (madoka magica), OMGkawaiiangel (needy streamer overload), Secret History Tails (mashed + theres something about amy), and Mikan (danganronpa)
+
   
 </details>
 <details>
