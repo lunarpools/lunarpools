@@ -25,7 +25,12 @@
 
   also i have diagnosed adhd and i suspect autism,, i dont understand a lot of social cues so if theres something you wanna tell me or something you need then please just tell me instead of hinting at it 😋 
 </details>
-
+<details>
+<summary>❌DNI</summary>
+<p>proshippers, zoophiles, schlep haters, viziepop supporters, basic dni
+  
+  also please don’t talk to me if you’re gonna be political around me or you like debating politics. politics are very bad for my mental health so i avoid them .</p>
+</details>
 
 
 <img width="512" height="520" alt="Untitled275_20260913162946" src="https://github.com/user-attachments/assets/a49dca60-285f-4d05-8281-7d94ec6fcdc3" />
