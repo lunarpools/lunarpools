@@ -29,7 +29,7 @@
 <summary>❌DNI</summary>
 <p>proshippers, zoophiles, schlep haters, viziepop supporters, basic dni
   
-  also please don’t talk to me if you’re gonna be political around me or you like debating politics. politics are very bad for my mental health so i avoid them .</p>
+  also please don’t talk to me if you’re gonna be political around me or you like debating politics. politics are very bad for my mental health so i avoid them 😥 .</p>
 </details>
 
 
