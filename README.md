@@ -1,8 +1,8 @@
 <img width="1200" height="200" alt="Untitled276_20260913163741" src="https://github.com/user-attachments/assets/2978e2ff-5940-4fad-baab-93615a5f3e0b" />
 
 — HI IM LUNARPOOLS
-<img width="100" height="100" alt="Untitled179_20260725140805" src="https://github.com/user-attachments/assets/278dc152-22df-4aa2-8825-5b8fa47be0b1" />
-<img width="100" height="100" alt="Untitled179_20260725140929" src="https://github.com/user-attachments/assets/21388be8-89ca-442e-8b55-31bfcb86d10e" />
+<img width="50" height="50" alt="Untitled179_20260725140805" src="https://github.com/user-attachments/assets/278dc152-22df-4aa2-8825-5b8fa47be0b1" />
+<img width="50" height="50" alt="Untitled179_20260725140929" src="https://github.com/user-attachments/assets/21388be8-89ca-442e-8b55-31bfcb86d10e" />
 
 
 <details>
