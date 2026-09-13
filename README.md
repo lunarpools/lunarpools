@@ -9,7 +9,7 @@
   
 </details>
 <details>
-  <summary>Click here to expand</summary>
+  <summary>‼️ WARNING (about me) </summary>
   
   This is the hidden text that appears when the dropdown is clicked.
 </details>
