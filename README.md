@@ -2,11 +2,11 @@
 
 — HI IM LUNARPOOLS
 
-an artist, animator, and indie show creator
+
 <details>
-  <summary>Click here to expand</summary>
+  <summary>About me</summary>
+  im an artist, animator, and indie show creator !! im in a LOT of fandoms but my main ones are Sonic, Dodge&Laffy, and Needy Streamer Overload. i really like cute things and im very into cutecore/jojifuku fashion >_<
   
-  This is the hidden text that appears when the dropdown is clicked.
 </details>
 
 
