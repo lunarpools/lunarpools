@@ -8,6 +8,12 @@
   im an artist, animator, and indie show creator !! im in a LOT of fandoms but my main ones are Sonic, Dodge&Laffy, and Needy Streamer Overload. i really like cute things and im very into cutecore/jojifuku fashion >_<
   
 </details>
+<details>
+  <summary>Click here to expand</summary>
+  
+  This is the hidden text that appears when the dropdown is clicked.
+</details>
+
 
 
 <img width="512" height="520" alt="Untitled275_20260913162946" src="https://github.com/user-attachments/assets/a49dca60-285f-4d05-8281-7d94ec6fcdc3" />
