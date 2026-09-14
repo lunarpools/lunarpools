@@ -7,8 +7,9 @@
 </div>
 <div align="center">
   — HI IM LUNARPOOLS
-</div>
+
 <img width="112" height="112" alt="IMG_5352" src="https://github.com/user-attachments/assets/23b54ceb-8828-4f33-b36f-0e2f24751be8" /> <— he IS me
+</div>
 <details>
   <summary>📝 About me</summary>
   
