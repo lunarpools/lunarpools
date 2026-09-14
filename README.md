@@ -59,7 +59,8 @@
 
 
 
-<img width="512" height="520" alt="Untitled275_20260913162946" src="https://github.com/user-attachments/assets/a49dca60-285f-4d05-8281-7d94ec6fcdc3" />
+<img width="1612" height="1620" alt="Untitled275_20260913233252" src="https://github.com/user-attachments/assets/0e7d5bbb-08ef-487e-bee0-8c5bb1c356fb" />
+
 </div>
 
 
