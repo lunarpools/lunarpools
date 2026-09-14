@@ -52,12 +52,12 @@
   
 </details>
 
-
+<div align="center">
 <img width="850" height="50" alt="Untitled277_20260913173225" src="https://github.com/user-attachments/assets/c26dabef-351c-4b34-b71f-c333b7589209" />
 
 
 <img width="512" height="520" alt="Untitled275_20260913162946" src="https://github.com/user-attachments/assets/a49dca60-285f-4d05-8281-7d94ec6fcdc3" />
-
+</div>
 
 
 
