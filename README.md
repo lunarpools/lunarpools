@@ -23,7 +23,7 @@
 <details>
   <summary>‼️ WARNING (about me) </summary>
   
-  I have really bad attachment issues so if you treat me too nice or too special i might get attached to you and it is USUALLY not a good thing
+  I have really bad attachment issues so keep that in mind when talking to me,,
 
   Usually being friends with me is fine but i can become a lot to handle if i become attached to you and you don’t know how to handle it. ghosting is one of the WORST things you can do to me when i get attached like that 💔 i seriously apologize in advance if i cause anyone any trouble because of these issues i have
 
