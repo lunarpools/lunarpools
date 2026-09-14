@@ -4,8 +4,9 @@
 <img width="150" height="150" alt="Untitled179_20260725140805" src="https://github.com/user-attachments/assets/278dc152-22df-4aa2-8825-5b8fa47be0b1" />
 <img width="150" height="150" alt="Untitled179_20260725140929" src="https://github.com/user-attachments/assets/21388be8-89ca-442e-8b55-31bfcb86d10e"(https://google.com) />
 
-— HI IM LUNARPOOLS
-
+<div align="center">
+  — HI IM LUNARPOOLS
+</div>
 <img width="112" height="112" alt="IMG_5352" src="https://github.com/user-attachments/assets/23b54ceb-8828-4f33-b36f-0e2f24751be8" /> <— he IS me
 <details>
   <summary>📝 About me</summary>
