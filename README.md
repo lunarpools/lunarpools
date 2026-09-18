@@ -57,11 +57,8 @@
 </details>
 
 <div align="center">
-<img width="1500" height="150" alt="Untitled276_20260913233114" src="https://github.com/user-attachments/assets/6a2aa748-a4d4-4f56-9b8f-30e140ec3328" />
 
-
-
-<img width="1312" height="1320" alt="Untitled279_20260913233405" src="https://github.com/user-attachments/assets/97c7c8b6-b83b-4c3f-9644-539b6499ea42" />
+<img width="387" height="516" alt="Untitled288_20260918181807" src="https://github.com/user-attachments/assets/9f08d5f4-ee22-4f22-a6fc-3456a11f45cc" />
 
 
 </div>
