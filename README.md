@@ -42,17 +42,7 @@
   also please don’t talk to me if you’re gonna be political around me or you like debating politics. politics are very bad for my mental health so i avoid them 😥 .</p>
 </details>
 
-<details>
-  <summary>📺 About my show/series/ocs </summary>
-  
-  im calling it a show because my friend said it technically was one BUT
-  on my youtube i have started an animation meme series about the unhealthy relationship of my two sonic ocs (Dodge Heart and Laffy)
 
-  it’s actually a remake of my first attempt which SUCKED because there was no planning in it 😔 
-
-  this time it’ll be great for sure though. as of writing this only the introduction and first episode is out but i plan to have 20 episodes :D
-
-<img width="515" height="520" alt="IMG_6279" src="https://github.com/user-attachments/assets/c5a97fda-9640-4af4-9648-ee413599f95a" /> <img width="515" height="520" alt="IMG_6278" src="https://github.com/user-attachments/assets/e907efee-582b-4329-9752-ae945aecf672" />
 
   
 </details>
