@@ -1,18 +1,18 @@
 <div align="center">
   <img width="636" height="200" alt="Untitled282_20260918181544" src="https://github.com/user-attachments/assets/5afae28e-580c-41b0-823e-2a699d1f547f" />
+
+
+
+
+
 </div>
 
 
-
-
-
-
-</div>
 <div align="center">
   — HI IM LUNARPOOLS
 
 <img width="200" height="200" alt="IMG_6419" src="https://github.com/user-attachments/assets/9e76b4c7-dd61-4e90-9d7c-4f0206122ca8" />
-
+</div>
 </div>
 <details>
   <summary>📝 About me</summary>
