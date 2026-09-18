@@ -11,7 +11,8 @@
 <div align="center">
   — HI IM LUNARPOOLS
 
-<img width="112" height="112" alt="IMG_5352" src="https://github.com/user-attachments/assets/23b54ceb-8828-4f33-b36f-0e2f24751be8" /> <— he IS me
+<img width="200" height="200" alt="IMG_6419" src="https://github.com/user-attachments/assets/9e76b4c7-dd61-4e90-9d7c-4f0206122ca8" />
+
 </div>
 <details>
   <summary>📝 About me</summary>
