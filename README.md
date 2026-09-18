@@ -13,7 +13,7 @@
   
   
 
-   <img width="200" height="200" alt="IMG_6419" src="https://github.com/user-attachments/assets/9e76b4c7-dd61-4e90-9d7c-4f0206122ca8" />
+   <img width="100" height="100" alt="IMG_6419" src="https://github.com/user-attachments/assets/9e76b4c7-dd61-4e90-9d7c-4f0206122ca8" />
 
    
 </div>
