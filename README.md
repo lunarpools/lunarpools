@@ -19,7 +19,7 @@
    [strawpage](https://twintailedfloof.straw.page)
 
    
-PLEASE read my strawpage because all my info is there 🥹 all youll find here is dni and why you need to iwc
+PLEASE read my strawpage because all my info is there 🥹 all youll find here is dni and iwc warning
 
    
 
@@ -27,7 +27,10 @@ PLEASE read my strawpage because all my info is there 🥹 all youll find here i
   
 </details>
 <details>
-  <summary>‼️ WARNING (about me) </summary>
+  <summary>‼️ WARNING  </summary>
+
+  ICW!!!!!!!
+
   
   I have really bad attachment issues so keep that in mind when talking to me,,
 
