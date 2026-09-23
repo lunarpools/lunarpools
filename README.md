@@ -4,9 +4,7 @@
 
 <a href="https://u8views.com/github/lunarpools"><img src="https://u8views.com/api/v1/github/profiles/322619866/views/total-count.svg"></a>
 
-<a href="https://u8views.com">
-  <img src="https://shields.io">
-</a>
+
 
 </div>
 
