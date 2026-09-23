@@ -2,7 +2,7 @@
   <img width="636" height="200" alt="Untitled282_20260918181544" src="https://github.com/user-attachments/assets/5afae28e-580c-41b0-823e-2a699d1f547f" />
 
 
-<a href="https://u8views.com/github/lunarpools"><img src="https://u8views.com/api/v1/github/profiles/322619866/views/day-week-month-total-count.svg"></a>
+<a href="https://u8views.com/github/lunarpools"><img src="https://u8views.com/api/v1/github/profiles/322619866/views/total-count.svg"></a>
 
 
 </div>
