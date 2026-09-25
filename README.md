@@ -17,7 +17,7 @@
 
 
 
-   [strawpage](https://twintailedfloof.straw.page)
+   [strawpage](https://twintailedfloof.straw.page)    [atabook](https://milestailsprower.atabook.org)
 
    
 PLEASE read my strawpage because all my info is there 🥹 all youll find here is dni and iwc warning
