@@ -57,7 +57,8 @@ PLEASE read my strawpage because all my info is there 🥹 all youll find here i
 
 
   
-<img width="387" height="516" alt="IMG_6413" src="https://github.com/user-attachments/assets/816a1ba5-65cc-4c6b-92da-4de80af8ad52" />
+<img width="387" height="516" alt="IMG_6413" src="https://github.com/user-attachments/assets/7bbab8b3-5fba-4688-9adf-50bcfd0c9a95" />
+
 
 
 
