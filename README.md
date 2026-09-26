@@ -25,7 +25,7 @@ PLEASE read my strawpage because all my info is there 🥹 all youll find here i
 
   ⚠️ I GET WORN OUT SOCIALLY VERY VERY EASILY !! usually im fine to int with but if i have DNI in my name then please PLLEAAASSEE dont talk to me (unless you’re my friend habit hello habit)
   
-  i might still reply to you but i’ll be very boring and you probably won’t wanna talk to me lol
+
 
 </div>
   
@@ -42,11 +42,8 @@ PLEASE read my strawpage because all my info is there 🥹 all youll find here i
 
   also i have diagnosed adhd and i suspect autism,, i dont understand a lot of social cues so if theres something you wanna tell me or something you need then please just tell me instead of hinting at it 😋 
 </details>
-<details>
-<summary>❌ DNI</summary>
-<p>proshippers, zoophiles, schlep haters, viziepop supporters, basic dni
+
   
-  also please don’t talk to me if you’re gonna be political around me or you like debating politics. politics are very bad for my mental health so i avoid them 😥 .</p>
 </details>
 
 
