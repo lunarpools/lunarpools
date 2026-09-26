@@ -31,7 +31,7 @@ PLEASE read my strawpage because all my info is there 🥹 all youll find here i
   
 </details>
 <details>
-  <summary>‼️ WARNING  </summary>
+  <summary>‼️ WARNING (click me)  </summary>
 
   ICW!!!!!!!
 
