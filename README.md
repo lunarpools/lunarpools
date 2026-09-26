@@ -21,7 +21,7 @@
    [strawpage](https://twintailedfloof.straw.page)    [atabook](https://milestailsprower.atabook.org)
 
    
-PLEASE read my strawpage because all my info is there 🥹 all youll find here is dni and iwc warning
+PLEASE read my strawpage because all my info is there 🥹 all youll find here is iwc warning
 
   ⚠️ I GET WORN OUT SOCIALLY VERY VERY EASILY !! usually im fine to int with but if i have DNI in my name then please PLLEAAASSEE dont talk to me (unless you’re my friend habit hello habit)
   
