@@ -23,6 +23,8 @@
    
 PLEASE read my strawpage because all my info is there 🥹 all youll find here is iwc warning
 
+Sonic, Cream, Vanilla, and Cosmo(the seedrian) are my comfort characters so PLEASE INT IF YOU KIN THEM (anyone is free to int as long as you arent in my dni !!!)
+
   ⚠️ I GET WORN OUT SOCIALLY VERY VERY EASILY !! usually im fine to int with but if i have DNI in my name then please PLLEAAASSEE dont talk to me (unless you’re my friend habit hello habit)
   
 
