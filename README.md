@@ -37,7 +37,7 @@ Sonic and Cream are my comfort characters so PLEASE INT IF YOU KIN THEM (anyone 
 
   ⚠️ I GET WORN OUT SOCIALLY VERY VERY EASILY !! usually im fine to int with but if i have DNI in my name then please PLLEAAASSEE dont talk to me (unless you’re my friend habit hello habit)
     
-  I have really bad attachment issues so keep that in mind when talking to me,,
+  I have attachment issues so keep that in mind when talking to me,,
 
   Usually being friends with me is fine but i can become a lot to handle if i become attached to you and you don’t know how to handle it. ghosting is one of the WORST things you can do to me when i get attached like that 💔 i seriously apologize in advance if i cause anyone any trouble because of these issues i have
 
