@@ -68,5 +68,4 @@ thank you [kaotown](https://github.com/kaotown) !!!!!!
 
 
 
-
-$${\color{yellow}This \space text \space is \space yellow}$$
+{\color{yellow}This \space text \space is \space yellow}
