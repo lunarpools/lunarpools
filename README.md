@@ -23,7 +23,8 @@
    
 PLEASE read my strawpage because all my info is there 🥹 all youll find here is iwc warning
 
-Sonic and Cream are my comfort characters so PLEASE INT IF YOU KIN THEM (anyone is free to int as long as you arent in my dni !!!)
+<img width="650" height="78" alt="IMG_6547" src="https://github.com/user-attachments/assets/20e7b104-7207-427c-b6cc-c593d3bc5fb1" />
+
   
 
 
