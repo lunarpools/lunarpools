@@ -26,7 +26,7 @@ PLEASE read my strawpage because all my info is there 🥹 all youll find here i
 <img width="300" height="35" alt="IMG_6547" src="https://github.com/user-attachments/assets/e8e8c390-077e-4f8e-94bd-e991b7e14509" />
 
 
-thank you [kaotown](https://github.com/kaotown)
+thank you [kaotown](https://github.com/kaotown) !!!!!!
   
 
 
