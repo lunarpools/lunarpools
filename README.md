@@ -65,5 +65,5 @@ thank you [kaotown](https://github.com/kaotown) !!!!!!
 
 
 </div>
+$${\color{yellow}\textsf{This is yellow text in a clean sans-serif font}}$$
 
-$${\color{yellow}\text{This is yellow text in the default font}}$$
