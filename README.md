@@ -66,3 +66,4 @@ thank you [kaotown](https://github.com/kaotown) !!!!!!
 
 </div>
 
+$${\color{yellow}\text{This is yellow text in the default font}}$$
