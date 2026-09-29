@@ -69,8 +69,4 @@ thank you [kaotown](https://github.com/kaotown) !!!!!!
 
 
 
-$${\color{red}This \space text \space is \space red}$$
-$${\color{green}This \space text \space is \space green}$$
-$${\color{lightblue}This \space text \space is \space light \space blue}$$
-
-
+$${\color{yellow}This \space text \space is \space yellow}$$
