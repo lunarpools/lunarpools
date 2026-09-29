@@ -28,7 +28,7 @@
 
 <img width="300" height="35" alt="IMG_6547" src="https://github.com/user-attachments/assets/e8e8c390-077e-4f8e-94bd-e991b7e14509" />
 
-  $${\color{#FFD73F}\text{THANK YOU}}$$ [kaotown](https://github.com/kaotown) $${\color{#FFD73F}\text{!!!!!!}}$$
+  $${\color{#FFD73F}\text{THANK YOU}}$$ [KAOTOWN](https://github.com/kaotown) $${\color{#FFD73F}\text{!!!!!!}}$$
 
 
 
