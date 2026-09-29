@@ -30,12 +30,12 @@
 
   $${\color{#FFD73F}\text{THANK YOU}}$$ [kaotown](https://github.com/kaotown) $${\color{#FFD73F}\text{!!!!!!}}$$
 
-thank you [kaotown](https://github.com/kaotown) !!!!!!
+
 
 </div>
   
 </details>
-<
+
   
 </details>
 
