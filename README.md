@@ -12,7 +12,7 @@
 
 <div align="center">
   — HI IM TAILS/MILES
-  
+  $${\color{yellow}\text{—HI IM TAILS/MILES}}$$
   
 
 
@@ -66,6 +66,6 @@ thank you [kaotown](https://github.com/kaotown) !!!!!!
 
 </div>
 
-$${\color{yellow}\text{This is yellow text in the default font}}$$
+
 
 
