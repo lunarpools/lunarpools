@@ -23,8 +23,8 @@
 
    [strawpage](https://twintailedfloof.straw.page)    [atabook](https://milestailsprower.atabook.org)
 
-   
-PLEASE read my strawpage because all my info is there 🥹 all youll find here is iwc warning
+  $${\color{#FFD73F}\text{PLEASE read my strawpage because all my info is there 🥹 all youll find here is iwc warning}}$$
+
 
 <img width="300" height="35" alt="IMG_6547" src="https://github.com/user-attachments/assets/e8e8c390-077e-4f8e-94bd-e991b7e14509" />
 
