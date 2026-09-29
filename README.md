@@ -23,7 +23,7 @@
    
 PLEASE read my strawpage because all my info is there 🥹 all youll find here is iwc warning
 
-<img width="400" height="40" alt="IMG_6547" src="https://github.com/user-attachments/assets/20e7b104-7207-427c-b6cc-c593d3bc5fb1" />
+<img width="300" height="40" alt="IMG_6547" src="https://github.com/user-attachments/assets/20e7b104-7207-427c-b6cc-c593d3bc5fb1" />
 
   
 
