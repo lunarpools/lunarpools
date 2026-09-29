@@ -35,20 +35,7 @@ thank you [kaotown](https://github.com/kaotown) !!!!!!
 </div>
   
 </details>
-<details>
-  <summary>‼️ WARNING (click me)  </summary>
-
-  ICW!!!!!!!
-
-  ⚠️ I GET WORN OUT SOCIALLY VERY VERY EASILY !! usually im fine to int with but if i have DNI in my name then please PLLEAAASSEE dont talk to me (unless you’re my friend habit hello habit)
-    
-  I have attachment issues so keep that in mind when talking to me,,
-
-  Usually being friends with me is fine but i can become a lot to handle if i become attached to you and you don’t know how to handle it. ghosting is one of the WORST things you can do to me when i get attached like that 💔 i seriously apologize in advance if i cause anyone any trouble because of these issues i have
-
-  also i have diagnosed adhd and i suspect autism,, i dont understand a lot of social cues so if theres something you wanna tell me or something you need then please just tell me instead of hinting at it 😋 
-</details>
-
+<
   
 </details>
 
