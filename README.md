@@ -66,6 +66,3 @@ thank you [kaotown](https://github.com/kaotown) !!!!!!
 
 </div>
 
-
-
-{\color{yellow}This \space text \space is \space yellow}
