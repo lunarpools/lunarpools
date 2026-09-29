@@ -25,7 +25,7 @@ PLEASE read my strawpage because all my info is there 🥹 all youll find here i
 
 <img width="300" height="35" alt="IMG_6547" src="https://github.com/user-attachments/assets/20e7b104-7207-427c-b6cc-c593d3bc5fb1" />
 
-thank you [kaotown](https://twintailedfloof.straw.page)
+thank you [kaotown](https://github.com/kaotown/kaotown)
   
 
 
