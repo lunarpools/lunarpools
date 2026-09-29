@@ -15,7 +15,7 @@
   
 
 
-  $${\color{blue}\text{—HI IM TAILS/MILES}}$$
+  $${\color{#FFD73F}\text{—HI IM TAILS/MILES}}$$
   
 
 
