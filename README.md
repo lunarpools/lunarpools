@@ -26,6 +26,7 @@
   $${\color{#FFD73F}\text{PLEASE read my strawpage because all my info is there 🥹}}$$
 
   $${\color{#FFD73F}\text{other tails fictionkins please iwec/dni at all}}$$
+  
   $${\color{#FFD73F}\text{i see myself as tails so it does upset   
 
   $${\color{#FFD73F}\text{i dont mean to offend any1!!!}}$$
