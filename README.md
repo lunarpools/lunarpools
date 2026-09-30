@@ -27,7 +27,7 @@
 
   $${\color{#FFD73F}\text{other tails fictionkins please iwec/dni at all}}$$
   
-  $${\color{#FFD73F}\text{i see myself as tails so i do get upset/jealous}}$$
+  $${\color{#FFD73F}\text{i see myself as tails so i do get very upset !! i might hide you}}$$
 <p>
 
 <img width="140" height="140" alt="copy_B65894B0-A97B-4E1A-8D4A-17AF3F0C9298" src="https://github.com/user-attachments/assets/32515503-e945-4e23-8deb-66e698ee79d5" />
