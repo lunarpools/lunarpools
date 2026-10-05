@@ -40,7 +40,7 @@
 
 
 
-<img width="300" height="35" alt="IMG_6547" src="https://github.com/user-attachments/assets/e8e8c390-077e-4f8e-94bd-e991b7e14509" /> <img width="300" height="55" alt="IMG_6621" src="https://github.com/user-attachments/assets/a564ee8f-3de3-412d-a387-ef9a7bc2d2ba" />
+<img width="300" height="35" alt="IMG_6547" src="https://github.com/user-attachments/assets/e8e8c390-077e-4f8e-94bd-e991b7e14509" /> <img width="300" height="34" alt="IMG_6621" src="https://github.com/user-attachments/assets/a564ee8f-3de3-412d-a387-ef9a7bc2d2ba" />
 
 
 
