@@ -21,7 +21,7 @@
 
 
 
-   [strawpage](https://twintailedfloof.straw.page)    [atabook](https://milestailsprower.atabook.org)
+   [strawpage](https://twintailedfloof.straw.page) •   [atabook](https://milestailsprower.atabook.org)
 
   $${\color{#FFD73F}\text{PLEASE read my strawpage because all my info is there 🥹}}$$
 
