@@ -50,7 +50,7 @@
 
 
 
-  $${\color{#FFD73F}\text{THANK YOU}}$$ [KAOTOWN](https://github.com/kaotown) $${\color{#FFD73F}\text{!!!!!!}}$$
+  $${\color{#FFD73F}\text{THANK YOU}}$$ [KAOTOWN](https://github.com/kaotown) [PONYTOWNS-REWARDS](https://github.com/Ponytowns-rewards) $${\color{#FFD73F}\text{!!!!!!}}$$
 
 
 
