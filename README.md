@@ -40,7 +40,7 @@ $${\color{#FFD73F}\text{DNI:}}$$
 
 $${\color{#FFD73F}\text{basic dni criteria}}$$
 
-$${\color{#FFD73F}\text{other tails kins (iwec/dni):}}$$
+$${\color{#FFD73F}\text{other tails kins iwec/dni :}}$$
 
 $${\color{#FFD73F}\text{people heavily into politics:}}$$
 
