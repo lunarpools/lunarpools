@@ -33,21 +33,7 @@
 <p>
 
 <img width="140" height="140" alt="copy_B65894B0-A97B-4E1A-8D4A-17AF3F0C9298" src="https://github.com/user-attachments/assets/32515503-e945-4e23-8deb-66e698ee79d5" />
-<img width="800" height="3" alt="IMG_6643" src="https://github.com/user-attachments/assets/41e15599-b6a9-42c4-ac18-622fd2ed83a7" />
 
-$${\color{#FFD73F}\text{IWEC:}}$$
-
-$${\color{#FFD73F}\text{i have attachment issues and sometimes i act really weird or insecure because of it, like issues}}$$
-
-$${\color{#FFD73F}\text{with becoming too attached/obsessed with people. i also am a bit unstable and unpredictable}}$$
-
-$${\color{#FFD73F}\text{with my emotions and sometimes i feel unnaturally happy and excited or completely down in}}$$
-
-$${\color{#FFD73F}\text{in the dumps and miserable. i can be a lot to handle when i’m feeling off, so i’ll usually put}}$$
-
-$${\color{#FFD73F}\text{ dni in my name! i also very easily get burnt out socially and i’ll become a lot quieter. i’ll tell you}}$$
-
-$${\color{#FFD73F}\text{when i’m feeling like that tho !! }}$$
 
 <img width="800" height="3" alt="IMG_6643" src="https://github.com/user-attachments/assets/41e15599-b6a9-42c4-ac18-622fd2ed83a7" />
 
