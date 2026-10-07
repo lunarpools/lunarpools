@@ -38,7 +38,7 @@
 
 $${\color{#FFD73F}\text{IWEC:}}$$
 
-$${\color{#FFD73F}\text{i have attachment issues and sometimes i act really weird or insecure because of it. i have issues}}$$
+$${\color{#FFD73F}\text{i have attachment issues and sometimes i act really weird or insecure because of it, like issues}}$$
 
 $${\color{#FFD73F}\text{with becoming too attached/obsessed with people. i also am a bit unstable and unpredictable}}$$
 
