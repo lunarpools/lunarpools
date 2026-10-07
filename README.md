@@ -46,7 +46,9 @@ $${\color{#FFD73F}\text{with my emotions and sometimes i feel unnaturally happy 
 
 $${\color{#FFD73F}\text{in the dumps and miserable. i can be a lot to handle when i’m feeling off,}}$$
 
-$${\color{#FFD73F}\text{so i’ll usually put dni in my name !}}$$
+$${\color{#FFD73F}\text{so i’ll usually put dni in my name! i also very easily get burnt out socially }}$$
+
+$${\color{#FFD73F}\text{and i’ll become a lot quieter. i’ll tell you when i’m feeling like that tho !! }}$$
 
 <img width="800" height="3" alt="IMG_6643" src="https://github.com/user-attachments/assets/41e15599-b6a9-42c4-ac18-622fd2ed83a7" />
 
