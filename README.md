@@ -43,7 +43,7 @@ $${\color{#FFD73F}\text{basic dni criteria}}$$
 
 $${\color{#FFD73F}\text{other tails kins iwec/dni}}$$
 
-$${\color{#FFD73F}\text{people heavily into politic}}$$
+$${\color{#FFD73F}\text{people heavily into politics and feel the need to debate them 24/7}}$$
 
 $${\color{#FFD73F}\text{people who shove their opinion down your throat because it’s “morally correct}}$$
 
