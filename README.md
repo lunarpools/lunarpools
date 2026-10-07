@@ -44,7 +44,11 @@ $${\color{#FFD73F}\text{other tails kins (iwec/dni:}}$$
 
 $${\color{#FFD73F}\text{people heavily into politics:}}$$
 
-$${\color{#FFD73F}\text{people who shove their opinion down your throat because it’s morally correct :}}$$
+$${\color{#FFD73F}\text{people who shove their opinion down your throat because it’s “morally correct” :}}$$
+
+$${\color{#FFD73F}\text{proshippers, darkshippers, anything like that:}}$$
+
+$${\color{#FFD73F}\text{please respect my boundaries,especially the politics one!!:}}$$
 </p>
 <p>
 
