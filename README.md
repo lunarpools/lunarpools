@@ -27,7 +27,7 @@
 
   $${\color{#FFD73F}\text{other tails fictionkins please iwec/dni at all}}$$
   
-  $${\color{#FFD73F}\text{c+h always allowed and encouraged unless my name says dni!! }}$$
+
 
 
 <p>
