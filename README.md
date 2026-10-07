@@ -37,6 +37,7 @@
 <img width="800" height="3" alt="IMG_6643" src="https://github.com/user-attachments/assets/41e15599-b6a9-42c4-ac18-622fd2ed83a7" />
 
 $${\color{#FFD73F}\text{i have attachment issues and sometimes i act really weird or insecure because of it. i have issues with becoming too attached/obsessed with people. i also am a bit unstable and unpredictable with my emotions and sometimes i feel unnaturally happy and excited or completely down in the dumps and miserable. i can be a lot to handle when i’m feeling off, so i’ll usually put dni in my name !}}$$
+$${\color{#FFD73F}\text{with becoming too attached/obsessed with people. i also am a bit unstable and unpredictable}}$$
 
 <img width="800" height="3" alt="IMG_6643" src="https://github.com/user-attachments/assets/41e15599-b6a9-42c4-ac18-622fd2ed83a7" />
 
