@@ -45,7 +45,7 @@ $${\color{#FFD73F}\text{other tails kins iwec/dni}}$$
 
 $${\color{#FFD73F}\text{people heavily into politics and feel the need to debate them 24/7}}$$
 
-$${\color{#FFD73F}\text{people who shove their opinion down your throat because it’s “morally correct}}$$
+$${\color{#FFD73F}\text{people who shove their opinion down your throat because it’s “morally correct”}}$$
 
 $${\color{#FFD73F}\text{proshippers, darkshippers, anything like that}}$$
 
