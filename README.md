@@ -21,6 +21,7 @@
 
 
 
+<img width="30" height="30" alt="IMG_6657" src="https://github.com/user-attachments/assets/3f0b034d-9ecf-43e0-b9ae-d67d1e4c250d" />
    [strawpage](https://twintailedfloof.straw.page) •   [atabook](https://milestailsprower.atabook.org)
 
   $${\color{#FFD73F}\text{PLEASE read my strawpage because all my info is there 🥹}}$$
