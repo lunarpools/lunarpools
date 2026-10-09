@@ -58,7 +58,8 @@ $${\color{#FFD73F}\text{please respect my boundaries, especially the politics on
 
 <img width="300" height="34" alt="Untitled310_20261009123637" src="https://github.com/user-attachments/assets/65526f5a-cf06-4bad-a74e-87f9124786ea" />
  <img width="300" height="34" alt="Untitled310_20261009123630" src="https://github.com/user-attachments/assets/8fdd979e-7a33-44ae-a8e1-a90e36db76d3" />
- <img width="300" height="35" alt="IMG_6651" src="https://github.com/user-attachments/assets/286c4dd6-6688-4e30-9039-64482bce501f" />
+<img width="300" height="34" alt="Untitled310_20261009123634" src="https://github.com/user-attachments/assets/a75067bf-266d-4fe6-9520-e9e7eabe0fe5" />
+
 
 
 
@@ -70,7 +71,7 @@ $${\color{#FFD73F}\text{please respect my boundaries, especially the politics on
 
 
 
-  $${\color{#FFD73F}\text{THANK YOU}}$$ [KAOTOWN](https://github.com/kaotown) [PONYTOWNS-REWARDS](https://github.com/Ponytowns-rewards) $${\color{#FFD73F}\text{!!!!!!}}$$
+  $${\color{#FFD73F}\text{THANK YOU}}$$ [KAOTOWN](https://github.com/kaotown) [PONYTOWNS-REWARDS](https://github.com/Ponytowns-rewards) AND [PT-FASHION](https://github.com/pt-fashion) $${\color{#FFD73F}\text{!!!!!!}}$$
 
 
 
