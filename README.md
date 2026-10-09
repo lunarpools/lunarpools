@@ -56,8 +56,8 @@ $${\color{#FFD73F}\text{please respect my boundaries, especially the politics on
 
 <img width="800" height="3" alt="IMG_6643" src="https://github.com/user-attachments/assets/41e15599-b6a9-42c4-ac18-622fd2ed83a7" />
 
-
-<img width="300" height="35" alt="IMG_6547" src="https://github.com/user-attachments/assets/e8e8c390-077e-4f8e-94bd-e991b7e14509" /> <img width="300" height="34" alt="IMG_6621" src="https://github.com/user-attachments/assets/a564ee8f-3de3-412d-a387-ef9a7bc2d2ba" /> <img width="300" height="35" alt="IMG_6651" src="https://github.com/user-attachments/assets/286c4dd6-6688-4e30-9039-64482bce501f" />
+<img width="300" height="34" alt="Untitled310_20261009123637" src="https://github.com/user-attachments/assets/65526f5a-cf06-4bad-a74e-87f9124786ea" />
+ <img width="300" height="34" alt="IMG_6621" src="https://github.com/user-attachments/assets/a564ee8f-3de3-412d-a387-ef9a7bc2d2ba" /> <img width="300" height="35" alt="IMG_6651" src="https://github.com/user-attachments/assets/286c4dd6-6688-4e30-9039-64482bce501f" />
 
 
 
