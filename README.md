@@ -25,8 +25,10 @@
 
    [strawpage](https://twintailedfloof.straw.page) •   [atabook](https://milestailsprower.atabook.org)
 
-  $${\color{#FFD73F}\text{ive been struggling mentally these past few days. for now please interact with extreme care :(}}$$
+  $${\color{#FFD73F}\text{ive been struggling mentally these past few days. }}$$
   
+   $${\color{#FFD73F}\text{so please iwec! }}$$
+    
   $${\color{#FFD73F}\text{PLEASE read my strawpage because all my info is there 🥹}}$$
 
   $${\color{#FFD73F}\text{other tails fictionkins please iwec/dni at all}}$$
