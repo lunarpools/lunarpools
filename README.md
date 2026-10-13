@@ -25,7 +25,7 @@
 
    [strawpage](https://twintailedfloof.straw.page) •   [atabook](https://milestailsprower.atabook.org)
 
-  $${\color{#FFD73F}\text{ive been struggling mentally these past few days. }}$$
+  $${\color{#FFD73F}\text{ive been struggling mentally these past few days so please iwec! }}$$
   
    $${\color{#FFD73F}\text{so please iwec! }}$$
     
