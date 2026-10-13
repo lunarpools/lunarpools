@@ -55,7 +55,7 @@ $${\color{#FFD73F}\text{people who shove their opinion down your throat}}$$
 
 $${\color{#FFD73F}\text{proshippers, darkshippers, anything like that}}$$
 
-$${\color{#FFD73F}\text{please respect my boundaries, especially the politics one!!}}$$
+$${\color{#FFD73F}\text{please respect my boundaries!!}}$$
 </p>
 <p>
 
