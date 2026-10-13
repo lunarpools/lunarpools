@@ -25,6 +25,8 @@
 
    [strawpage](https://twintailedfloof.straw.page) •   [atabook](https://milestailsprower.atabook.org)
 
+  $${\color{#FFD73F}\text{im currently going through a pretty bad time recently. for now please interact with extreme care}}$$
+  
   $${\color{#FFD73F}\text{PLEASE read my strawpage because all my info is there 🥹}}$$
 
   $${\color{#FFD73F}\text{other tails fictionkins please iwec/dni at all}}$$
