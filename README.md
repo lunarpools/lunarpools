@@ -25,9 +25,9 @@
 
    [strawpage](https://twintailedfloof.straw.page) •   [atabook](https://milestailsprower.atabook.org)
 
-  $${\color{#FFD73F}\text{ive been struggling mentally these past few days, }}$$
+  $${\color{#FFD73F}\text{considering leaving a lot of my friends}}$$
   
-   $${\color{#FFD73F}\text{so please iwec! }}$$
+   $${\color{#FFD73F}\text{because why are you all problematic 😭}}$$
     
   $${\color{#FFD73F}\text{PLEASE read my strawpage cus all my info is there 🥹}}$$
 
