@@ -25,7 +25,7 @@
 
    [strawpage](https://twintailedfloof.straw.page) •   [atabook](https://milestailsprower.atabook.org)
 
-
+[![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=31vy32kesk2gbiio6oiztam5eqfu&cover_image=true&theme=novatorem&show_offline=false&background_color=ffd358&interchange=false&profanity=false&hide_remaster=false&bar_color=ffd358&bar_color_cover=false)](https://spotify-github-profile.kittinanx.com/api/view?uid=31vy32kesk2gbiio6oiztam5eqfu&redirect=true)
     
   $${\color{#FFD73F}\text{PLEASE read my strawpage cus all my info is there 🥹}}$$
 
@@ -102,5 +102,5 @@ $${\color{#FFD73F}\text{please respect my boundaries!!}}$$
 
 </div>
 
-[![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=31tx6feg2vjuplfv7q2effw5ytkq&cover_image=true&theme=novatorem&show_offline=false&background_color=ffd358&interchange=false&profanity=false&hide_remaster=false&bar_color=ffd358&bar_color_cover=false)](https://spotify-github-profile.kittinanx.com/api/view?uid=31tx6feg2vjuplfv7q2effw5ytkq&redirect=true)
+
 
