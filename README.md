@@ -103,5 +103,5 @@ $${\color{#FFD73F}\text{please respect my boundaries!!}}$$
 </div>
 
 
-
+[![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=31tx6feg2vjuplfv7q2effw5ytkq&cover_image=true&theme=default&show_offline=false&background_color=ffd358&interchange=false&profanity=false&hide_remaster=false&bar_color=ffd358&bar_color_cover=false)](https://spotify-github-profile.kittinanx.com/api/view?uid=31tx6feg2vjuplfv7q2effw5ytkq&redirect=true)
 
