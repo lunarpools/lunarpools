@@ -20,7 +20,7 @@
 
   $${\color{#FFD73F}\text{—HI IM TAILS/MILES}}$$
   
-<img width="400" height="45" alt="IMG_6763" src="https://github.com/user-attachments/assets/6fc0fd9d-d961-4411-a00a-5f2ebcb2a46a" />
+<img width="400" height="50" alt="IMG_6763" src="https://github.com/user-attachments/assets/6fc0fd9d-d961-4411-a00a-5f2ebcb2a46a" />
 
 
 
