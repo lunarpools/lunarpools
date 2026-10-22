@@ -103,8 +103,9 @@ $${\color{#FFD73F}\text{please respect my boundaries!!}}$$
   
 
 
+<img width="387" height="516" alt="IMG_6757" src="https://github.com/user-attachments/assets/16bf06c9-f069-4c05-9c1f-3e8be935c186" />
 
-<img width="387" height="516" alt="IMG_6757" src="https://github.com/user-attachments/assets/6c7cfabe-5b63-44d3-a717-c79d52e841c6" />
+
 
 
 </div>
