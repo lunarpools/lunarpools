@@ -105,7 +105,7 @@ $${\color{#FFD73F}\text{please respect my boundaries!!}}$$
 <img width="387" height="516" alt="Untitled318_20261022142118" src="https://github.com/user-attachments/assets/8c89b503-d73c-4432-93ff-d06c37e21822" />
 
 
-<img width="387" height="516" alt="IMG_6757" src="https://github.com/user-attachments/assets/16bf06c9-f069-4c05-9c1f-3e8be935c186" />
+
 
 
 
