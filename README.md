@@ -108,8 +108,3 @@ $${\color{#FFD73F}\text{please respect my boundaries!!}}$$
 
 
 
-<div align="center">
-  
-add anything here 😋 OR DONT.,,,,.THATSFINETOO
-
-</div>
