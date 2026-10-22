@@ -101,9 +101,10 @@ $${\color{#FFD73F}\text{please respect my boundaries!!}}$$
 
 
   
-<img width="387" height="516" alt="IMG_6413" src="https://github.com/user-attachments/assets/7bbab8b3-5fba-4688-9adf-50bcfd0c9a95" />
 
 
+
+<img width="387" height="516" alt="IMG_6757" src="https://github.com/user-attachments/assets/6c7cfabe-5b63-44d3-a717-c79d52e841c6" />
 
 
 </div>
