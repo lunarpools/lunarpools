@@ -20,11 +20,11 @@
 
   $${\color{#FFD73F}\text{—HI IM TAILS/MILES}}$$
   
-<img width="150" height="20" alt="IMG_6762" src="https://github.com/user-attachments/assets/567291a6-421f-4f34-8a4e-d201a10c9247" />
+<img width="200" height="35" alt="IMG_6762" src="https://github.com/user-attachments/assets/567291a6-421f-4f34-8a4e-d201a10c9247" />
 
 
 
-<img width="80" height="80" alt="IMG_6657" src="https://github.com/user-attachments/assets/3f0b034d-9ecf-43e0-b9ae-d67d1e4c250d" />
+<img width="40" height="40" alt="IMG_6657" src="https://github.com/user-attachments/assets/3f0b034d-9ecf-43e0-b9ae-d67d1e4c250d" />
 
    [strawpage](https://twintailedfloof.straw.page) •   [atabook](https://milestailsprower.atabook.org)
 
