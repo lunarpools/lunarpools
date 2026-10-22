@@ -65,6 +65,8 @@ $${\color{#FFD73F}\text{please respect my boundaries!!}}$$
 
 [![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=31vy32kesk2gbiio6oiztam5eqfu&cover_image=true&theme=novatorem&show_offline=false&background_color=ffd358&interchange=false&profanity=false&hide_remaster=false&bar_color=ffd358&bar_color_cover=false)](https://spotify-github-profile.kittinanx.com/api/view?uid=31vy32kesk2gbiio6oiztam5eqfu&redirect=true)
 
+<img width="600" height="80" alt="IMG_6750" src="https://github.com/user-attachments/assets/074e97b8-c9f4-4f31-abf1-d0da37403ee3" />
+
 <img width="800" height="3" alt="IMG_6643" src="https://github.com/user-attachments/assets/41e15599-b6a9-42c4-ac18-622fd2ed83a7" />
 
 <img width="300" height="34" alt="Untitled310_20261009123637" src="https://github.com/user-attachments/assets/65526f5a-cf06-4bad-a74e-87f9124786ea" />
