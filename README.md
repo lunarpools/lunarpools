@@ -20,7 +20,7 @@
 
   $${\color{#FFD73F}\text{—HI IM TAILS/MILES}}$$
   
-
+<img width="150" height="20" alt="IMG_6762" src="https://github.com/user-attachments/assets/567291a6-421f-4f34-8a4e-d201a10c9247" />
 
 
 
@@ -65,7 +65,7 @@ $${\color{#FFD73F}\text{please respect my boundaries!!}}$$
 
 [![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=31vy32kesk2gbiio6oiztam5eqfu&cover_image=true&theme=novatorem&show_offline=false&background_color=ffd358&interchange=false&profanity=false&hide_remaster=false&bar_color=ffd358&bar_color_cover=false)](https://spotify-github-profile.kittinanx.com/api/view?uid=31vy32kesk2gbiio6oiztam5eqfu&redirect=true)
 
-<img width="150" height="20" alt="IMG_6762" src="https://github.com/user-attachments/assets/567291a6-421f-4f34-8a4e-d201a10c9247" />
+
 
 
 <img width="800" height="3" alt="IMG_6643" src="https://github.com/user-attachments/assets/41e15599-b6a9-42c4-ac18-622fd2ed83a7" />
