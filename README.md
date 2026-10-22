@@ -12,7 +12,6 @@
 
 <div align="center">
 
-  <img width="600" height="80" alt="IMG_6749" src="https://github.com/user-attachments/assets/85ddc54a-0ad8-4761-bc72-355e00980516" />
 
 
 
