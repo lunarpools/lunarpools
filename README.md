@@ -34,7 +34,7 @@
     
   $${\color{#FFD73F}\text{PLEASE read my strawpage cus all my info is there 🥹}}$$
 
-  $${\color{#FFD73F}\text{other tails fictionkins please iwec/dni at all}}$$
+  $${\color{#FFD73F}\text{not well recently. iwec 24/7}}$$
   
 
 
