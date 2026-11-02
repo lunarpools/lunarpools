@@ -35,7 +35,7 @@
   $${\color{#FFD73F}\text{PLEASE read my strawpage cus all my info is there 🥹}}$$
 
   $${\color{#FFD73F}\text{not well recently. iwec 24/7}}$$
-  
+  $${\color{#FFD73F}\text{everytime i have something good, the world genuinely takes it away }}$$
 
 
 
