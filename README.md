@@ -76,6 +76,7 @@ $${\color{#FFD73F}\text{please respect my boundaries!!}}$$
  <img width="300" height="34" alt="Untitled310_20261009123630" src="https://github.com/user-attachments/assets/8fdd979e-7a33-44ae-a8e1-a90e36db76d3" />
 <img width="300" height="34" alt="Untitled310_20261009123634" src="https://github.com/user-attachments/assets/a75067bf-266d-4fe6-9520-e9e7eabe0fe5" />
 
+<img width="300" height="34" alt="Untitled310_20261102153755" src="https://github.com/user-attachments/assets/c6416708-d283-4854-951c-d6f488058580" />
 
 
 
@@ -87,7 +88,7 @@ $${\color{#FFD73F}\text{please respect my boundaries!!}}$$
 
 
 
-  $${\color{#FFD73F}\text{THANK YOU}}$$ [KAOTOWN](https://github.com/kaotown) [PONYTOWNS-REWARDS](https://github.com/Ponytowns-rewards) [PT-FASHION](https://github.com/pt-fashion) $${\color{#FFD73F}\text{!!!!!!}}$$
+  $${\color{#FFD73F}\text{THANK YOU}}$$ [KAOTOWN](https://github.com/kaotown) [PONYTOWNS-REWARDS](https://github.com/Ponytowns-rewards) [PT-FASHION](https://github.com/pt-fashion) [KNOX-EVENT](https://github.com/knox-event) $${\color{#FFD73F}\text{!!!!!!}}$$
 
 
 
