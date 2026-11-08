@@ -47,6 +47,7 @@
 
 <img width="800" height="3" alt="IMG_6643" src="https://github.com/user-attachments/assets/41e15599-b6a9-42c4-ac18-622fd2ed83a7" />
 
+<img width="40" height="33" alt="IMG_6669" src="https://github.com/user-attachments/assets/6564321a-1764-4847-9f22-bb9a7fe84f7b" />
 $${\color{#FFD73F}\text{DNI:}}$$
 
 $${\color{#FFD73F}\text{basic dni criteria}}$$
