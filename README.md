@@ -29,7 +29,7 @@
 
 
 
-   [strawpage](https://twintailedfloof.straw.page) •   [atabook](https://milestailsprower.atabook.org)
+   [strawpage](https://mintcandy.straw.page) •   [atabook](https://milestailsprower.atabook.org)
 
 
     
