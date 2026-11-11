@@ -60,7 +60,7 @@
 
 
 
-<img width="800" height="3" alt="IMG_6643" src="https://github.com/user-attachments/assets/41e15599-b6a9-42c4-ac18-622fd2ed83a7" />
+
 
 <img width="300" height="34" alt="Untitled310_20261009123637" src="https://github.com/user-attachments/assets/65526f5a-cf06-4bad-a74e-87f9124786ea" />
  <img width="300" height="34" alt="Untitled310_20261009123630" src="https://github.com/user-attachments/assets/8fdd979e-7a33-44ae-a8e1-a90e36db76d3" />
