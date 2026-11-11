@@ -33,9 +33,9 @@
 
 
     
-  $${\color{#FFD73F}\text{PLEASE read my strawpage cus all my info is there 🥹}}$$
+  $${\color{#FFD73F}\text{read my strawpage if you wanna learn more about me}}$$
 
-  $${\color{#FFD73F}\text{always lookin’ to make friends!!}}$$
+  $${\color{#FFD73F}\text{and sign my atabook if you think im cool ^^}}$$
 
 
 
