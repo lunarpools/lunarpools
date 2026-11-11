@@ -35,7 +35,7 @@
     
   $${\color{#FFD73F}\text{read my strawpage if you wanna learn more about me}}$$
 
-  $${\color{#FFD73F}\text{and sign my atabook if you think im cool ^^ }}$$
+  $${\color{#FFD73F}\text{and sign my atabook if you think im cool..!! }}$$
 
 
 
