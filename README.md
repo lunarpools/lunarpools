@@ -50,19 +50,7 @@
 
 <img width="40" height="33" alt="IMG_6669" src="https://github.com/user-attachments/assets/6564321a-1764-4847-9f22-bb9a7fe84f7b" /> 
 
-$${\color{#FFD73F}\text{DNI:}}$$
 
-$${\color{#FFD73F}\text{basic dni criteria}}$$
-
-$${\color{#FFD73F}\text{other tails kins iwec/dni}}$$
-
-$${\color{#FFD73F}\text{people heavily into politics and feel the need to debate them 24/7}}$$
-
-$${\color{#FFD73F}\text{people who shove their opinion down your throat}}$$
-
-$${\color{#FFD73F}\text{proshippers, darkshippers, anything like that}}$$
-
-$${\color{#FFD73F}\text{please respect my boundaries!!}}$$
 </p>
 <p>
 
