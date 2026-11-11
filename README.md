@@ -55,9 +55,7 @@
 <p>
 
 
-<img width="800" height="3" alt="IMG_6643" src="https://github.com/user-attachments/assets/41e15599-b6a9-42c4-ac18-622fd2ed83a7" />
 
-[![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=31vy32kesk2gbiio6oiztam5eqfu&cover_image=true&theme=novatorem&show_offline=false&background_color=ffd358&interchange=false&profanity=false&hide_remaster=false&bar_color=ffd358&bar_color_cover=false)](https://spotify-github-profile.kittinanx.com/api/view?uid=31vy32kesk2gbiio6oiztam5eqfu&redirect=true)
 
 
 
